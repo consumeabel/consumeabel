@@ -20,8 +20,8 @@
       $\color{c49927}\normalsize{\texttt{ replies might be late, but i won't ghost!}}$ <br>
       $\color{c49927}\normalsize{\texttt{you can find me around ut/dr or hh}}$ <br>
       $\color{c49927}\normalsize{\texttt{sitting as an abel or spamton!}}$ <br>
-      $\color{c49927}\normalsize{\texttt{alright with c+h unless laying with}}$ <br>
-      $\color{c49927}\normalsize{\texttt{somepony :3. dont really have a dni}}$ <br>
+      $\color{c49927}\normalsize{\texttt{alright with c+h and people taking}}$ <br>
+      $\color{c49927}\normalsize{\texttt{inspo off me :3. dont really have a dni}}$ <br>
     </th>
   </tr>
   </table>
