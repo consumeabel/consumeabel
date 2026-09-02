@@ -15,12 +15,12 @@
   <table>
   <tr>
     <th>
-      $\color{c49927}\normalsize{\texttt{i am mostly offtab probably on roblox, but}}$ <br>
-      $\color{c49927}\normalsize{\texttt{be free to interact or whisper to me.}}$ <br>
-      $\color{c49927}\normalsize{\texttt{ replies might be late, but i won't ghost!}}$ <br>
-      $\color{c49927}\normalsize{\texttt{you can find me around ut/dr or hh}}$ <br>
-      $\color{c49927}\normalsize{\texttt{sitting as an abel or spamton!}}$ <br>
-      $\color{c49927}\normalsize{\texttt{love c+h! most of my skins by}}$ <br>
+      $\color{c49927}\normalsize{\texttt{either offtab on roblox or ontab looking}}$ <br>
+      $\color{c49927}\normalsize{\texttt{to chat! i always respond to whispers!}}$ <br>
+      $\color{c49927}\normalsize{\texttt{my partner is harper i lov him a lot <33}}$ <br>
+      $\color{c49927}\normalsize{\texttt{usually im around the UTDR or HH area}}$ <br>
+      $\color{c49927}\normalsize{\texttt{sitting as a spamton or an abel!}}$ <br>
+      $\color{c49927}\normalsize{\texttt{c + h encouraged! most of my skins by}}$ <br>
       $\color{c49927}\normalsize{\texttt{my lovely husband. dont really have a dni}}$ <br>
     </th>
   </tr>
