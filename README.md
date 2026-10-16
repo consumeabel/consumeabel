@@ -17,7 +17,7 @@
     <th>
       $\color{c49927}\normalsize{\texttt{either offtab on roblox or ontab looking}}$ <br>
       $\color{c49927}\normalsize{\texttt{to chat! i always respond to whispers!}}$ <br>
-      $\color{c49927}\normalsize{\texttt{my partner is harper i lov him a lot <33}}$ <br>
+      $\color{c49927}\normalsize{\texttt{if i really like your pony you get a crown<33}}$ <br>
       $\color{c49927}\normalsize{\texttt{usually im around the UTDR or HH area}}$ <br>
       $\color{c49927}\normalsize{\texttt{sitting as a spamton or an abel!}}$ <br>
       $\color{c49927}\normalsize{\texttt{c + h encouraged! most of my skins by}}$ <br>
