@@ -19,9 +19,9 @@
       $\color{c49927}\normalsize{\texttt{to chat! i always respond to whispers!}}$ <br>
       $\color{c49927}\normalsize{\texttt{i hope to become ponytown's abel from hh <33}}$ <br>
       $\color{c49927}\normalsize{\texttt{usually im around the UTDR or HH area}}$ <br>
-      $\color{c49927}\normalsize{\texttt{sitting as a spamton or an abel!}}$ <br>
+      $\color{c49927}\normalsize{\texttt{sitting as a spamton (DR) or an abel (HH)!}}$ <br>
       $\color{c49927}\normalsize{\texttt{c + h encouraged! most of my skins by me}}$ <br>
-      $\color{c49927}\normalsize{\texttt{and okay as ref! dont really have a dni}}$ <br>
+      $\color{c49927}\normalsize{\texttt{dont ref pls! i don't have a dni!}}$ <br>
     </th>
   </tr>
   </table>
